@@ -1,1 +1,1 @@
-# hindiryo.github.io
+# hindriyo.github.io
